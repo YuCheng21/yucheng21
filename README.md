@@ -17,4 +17,4 @@ Hi, I'm Yu-Cheng! I am currently majoring in electrical engineering in universit
 
 - Personal site：<https://yucheng.me>
 - Telegram：<https://t.me/fyc621>
-- Facebook：<https://www.facebook.com/Feng.Thomas>
+- Facebook：<https://www.facebook.com/yucheng621>
